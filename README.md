@@ -1,5 +1,6 @@
 # Funny-Stress-Relief
 
+https://costargc.github.io/funny-stress-relief/
 
 If you love babies, this is just a magical stress relief button for that day you are not laughing much...
 
